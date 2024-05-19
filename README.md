@@ -1,2 +1,2 @@
 # JANA-WEWS-
-Go Errol!
+Pa help nalang mag transfer nito T_T
